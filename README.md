@@ -1,2 +1,2 @@
 # Lotusmegas
-Lotus | Megas RolePlay - FiveM QB-Core Sunucusu
+Megas Roleplay|Megas Roleplay - FiveM QB-Core Sunucusu
